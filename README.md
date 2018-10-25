@@ -1,1 +1,0 @@
-# roman-smirnov.github.io
